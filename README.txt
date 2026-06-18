@@ -1,1 +1,0 @@
-Exercícios da Segunda entrega.
